@@ -3,15 +3,14 @@ info;
 
 hello! we are the ink collective! we use they/he pronouns!
 some of us have td & cd, just ask!
-most of alter skins dont have introj or sys in the name!
-but will have this account connected!
+this account is for our alter skins!
 
 ★
 frequent alters;
 
 alpharad [co-host]
 smallant [host]
-dream [caretaker]
+mask [no role]
 octoboy (s) [soother]
 failboat (s) [adhd holder]
 callie [caretaker]
@@ -21,8 +20,8 @@ agent 3 [co-host]
 jaymoji (s) [co-host/soother]
 tommy (not innit) [persecutor]
 
-we have more alters then this! we are a did traumagenic sys!
-and other term where they split often, i forgot what it is lmao
+we have more alters then this! we are a did traumagenic polyfrag sys!
+
 ★
 int sys wide;
 
